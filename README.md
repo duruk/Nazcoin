@@ -1,0 +1,2 @@
+# Nazcoin
+Naz Coin (NAZ)
